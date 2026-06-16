@@ -29,9 +29,8 @@ To resolve this issue:
 
 ### Instructor
 
-Ray Villalobos 
-                            
-Author, Multimedia Developer
+Rai 
+Learner / student
 
                             
 
